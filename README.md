@@ -1,3 +1,3 @@
 ## Hi there,I'm Maya 👋
-## I’m currently in the third semester of the programme; MSc in Econometrics & Financial Technology
+## Pursuing MSc in Econometrics & Financial Technology from CBS, CUSAT
 
